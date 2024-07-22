@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Nick
+- 👀 I’m interested in Coding for multiple games like BTD6 and Slime Rancher.
+- 😄 Pronouns: he
+- ⚡ Fun fact: Theres no Fun Facts im just a normal person thats not good at coding.
